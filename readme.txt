@@ -32,4 +32,7 @@ There is some context for this one. This is a heart breaking episode, as it's no
 Episode 9:
 Max and Nugget are cops again, and they're trying to find the criminal nugget, the criminal nugget sees the cops across the street and runs away and hides around a corner. And the cops start walking around the corner. The criminal starts asking for YouTube likes. And with the power of YouTube likes he gets a decent disguise. But unfortunately, unlike the previous likes, this one was not from the power of Bluetooth. Instead it was from the power of USB 1.0. So the disguise falls off, and he gets arrested.
 
+Episode 10:
+Nugget's birthday is today. He has a party at 3 pm. But once it strikes 3 pm, no one is there to celebrate his birthday (sad). But with the power of YouTube Likes via Bluetooth, Max and his family come over to celebrate his birthday.
+
 That is the lore of gegagedigedagedago nuggets so far. Thank you for reading.
