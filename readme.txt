@@ -35,4 +35,10 @@ Max and Nugget are cops again, and they're trying to find the criminal nugget, t
 Episode 10:
 Nugget's birthday is today. He has a party at 3 pm. But once it strikes 3 pm, no one is there to celebrate his birthday (sad). But with the power of YouTube Likes via Bluetooth, Max and his family come over to celebrate his birthday.
 
+Episode 11:
+Max is about to hit 6 million subscribers on YouTube, but he is 2 subscribers away. Nugget comes in and listens to Max's current issue then subscribes to him. But it's not enough. So by liking the video, Max gets another subscriber and hits 6 million subscribers.
+
+Episode 12:
+There is a homeless grandma nugget with a puppy on the sidewalk, a rich nugget comes by and doesn't give any money. Max walks up and wants to give money, but he has no money in his wallet. So by liking the video he magically gains money and gives it to grandma (this won't affect the economy at all), and the rich nugget's money was also stolen and magically magnetized to the homeless grandma nugget.
+
 That is the lore of gegagedigedagedago nuggets so far. Thank you for reading.
